@@ -11,12 +11,9 @@ I LOVE CHATTING WITH PEOPLE but just know i might sound a tad bit awkward most t
 
 tell me if im being rude or anything please. most times i dont know whether i am or am not
 
+
 dni: 
-
-
-
-
-
+basic dni: homophobic , racist , ect.  Proshippers DO NOT INTERACT WITH ME AT ALL please!
 
 
 
