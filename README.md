@@ -1,20 +1,15 @@
-# ILOVECOFFEE
-<img src="https://64.media.tumblr.com/19c2c34d537737b2f31a32c8c0a14d70/4e88badd75e8455b-10/s2048x3072/39dad14d32caa17ae0410e03b5f1a710df809a53.pnj">
-<img src="https://64.media.tumblr.com/00732b4357c61d57fdf5c19464488d10/35abb9080ef6a440-c8/s400x600/7d868e13aaf4d20ded84f31c0ab9fd8d33b8d6a0.gifv">
-HELLO!
+<img src="https://64.media.tumblr.com/04880f68e8ac6a1ec68b16274fba7f78/16d24f9fbcc0eb61-18/s1280x1920/bc78a5194e3260d19c53b906f95153b4754404b7.pnj">
+
+hi im fisher / isaac / whatever else you wanna call me (you can call me by the character im cosplaying in pony town) 
+
+i like roblox games (mainly: let him go , forsaken , phighting , ^_^ , dumb boss fights , and some more) 
 
 
-C+H IS APPRICATED ! also btw anyone feel free to interact with me 
+
 
 byi:
-I LOVE CHATTING WITH PEOPLE but just know i might sound a tad bit awkward most times and probably not speak much or at all sorry..
-
-tell me if im being rude or anything please. most times i dont know whether i am or am not
-
+I LOVEEE CHATTING WITH PEOPLEE but just know if you want to interact with me i might act a little awkward or be very quiet. alsoo cuddles appricated ^_^ !! i make kys/kms jokes so TELL ME IF IT MAKES
+YOU UNCOMFORTABLE and same with me making freaky jokes TELL ME. 
 
 dni: 
-basic dni: homophobic , racist , ect.  Proshippers DO NOT INTERACT WITH ME AT ALL please!
-
-
-
-<img src="https://64.media.tumblr.com/4b0b4bab81c045f6c271e43c8da42fff/4e88badd75e8455b-5b/s2048x3072/39697cd60d1ab09df42db70ace50b95c6f1a34b5.pnj">
+homo/transphobic , problematic people , toxic , bigots , trump supporters , anyone who is above the age of 16 (i dont want to interact with anyone more older than me..unless i known you for a long time) ,
