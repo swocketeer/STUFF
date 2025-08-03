@@ -9,7 +9,7 @@ i like roblox games (mainly: let him go , forsaken , phighting , ^_^ , dumb boss
 
 byi:
 I LOVEEE CHATTING WITH PEOPLEE but just know if you want to interact with me i might act a little awkward or be very quiet. alsoo cuddles appricated ^_^ !! i make kys/kms jokes so TELL ME IF IT MAKES
-YOU UNCOMFORTABLE and same with me making freaky jokes TELL ME. 
+YOU UNCOMFORTABLE or if i ever make you uncomfortable yeah tell me
 
 dni: 
 homo/transphobic , problematic people , toxic , bigots , trump supporters , anyone who is above the age of 16 (i dont want to interact with anyone more older than me..unless i known you for a long time) 
