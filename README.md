@@ -1,17 +1,12 @@
 <img src="https://64.media.tumblr.com/04880f68e8ac6a1ec68b16274fba7f78/16d24f9fbcc0eb61-18/s1280x1920/bc78a5194e3260d19c53b906f95153b4754404b7.pnj">
 
-hi im fisher / isaac / whatever else you wanna call me (you can call me by the character im cosplaying in pony town) 
+hi im brandon (you can call me by the character im cosplaying in pony town if you wanna!) 
 
-i like roblox games (mainly: let him go , forsaken , phighting , ^_^ , dumb boss fights , and some more) 
-
-
+i like roblox games (mostly phighting and die of death cause i love slop 🤤)
 
 
-byi:
-I LOVEEE CHATTING WITH PEOPLEE but just know if you want to interact with me i might act a little awkward or be very quiet. alsoo cuddles appricated ^_^ !! i make kys/kms jokes so TELL ME IF IT MAKES
-YOU UNCOMFORTABLE or if i ever make you uncomfortable yeah tell me
+
+byi:i love talking to people but just know i might come off as awkward so sorry 🥺🥺
 
 dni: 
-homo/transphobic , problematic people , toxic , bigots , trump supporters , anyone who is above the age of 16 (i dont want to interact with anyone more older than me..unless i known you for a long time) 
-
-basic dni stuff 
+basic dni stuff , anyone over the age of 16 (sorry i just dont want to int with anyone wayy older than me)
