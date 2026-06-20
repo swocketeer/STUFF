@@ -7,7 +7,7 @@ i like roblox games (mostly phighting and die of death cause i love slop 🤤)
 <br>
 <br>
 <br>
-byi:i love talking to people but just know i might come off as awkward so sorry 🥺🥺
+byi: i love talking to people but just know i might come off as awkward so sorry 🥺🥺
 <br>
 <br>
 <br>
