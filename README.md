@@ -1,5 +1,4 @@
-<img src="<img width="734" height="114" alt="image" src="https://github.com/user-attachments/assets/52c243fe-0454-4a6c-b18d-cdba2536cf59" />
-">
+<img src="https://64.media.tumblr.com/1b36ac979271ca0ed19d00ff452ff8d9/53a8f3a35218aa8c-d8/s1280x1920/975a05bb10a8e2d6febbbdb0b7af4d4b3e8e1a39.gifv"/>
 
 hi im brandon (you can call me by the character im cosplaying in pony town if you wanna!) 
 
